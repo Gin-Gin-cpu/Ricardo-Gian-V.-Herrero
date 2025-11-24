@@ -1,4 +1,4 @@
-# Hi, I'm <Gin-Gin-cpu>
+
 
 ### 👤 Name:
 Herrero, Ricardo Gian V.
