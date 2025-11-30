@@ -1,7 +1,7 @@
 
 
 ### 👤 Name:
-Gian V. Herrero
+Ricardo Gian V. Herrero
 
 ### 🎓 Education:
 New Era University/BSIT
